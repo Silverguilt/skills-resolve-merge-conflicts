@@ -1,3 +1,1 @@
-# References
-
-* octocat 1 😈
+Silverguilt and a lot of others
